@@ -1,0 +1,129 @@
+---
+description: "Step-by-Step Guide to Make Homemade Vanilla Layer Cake filled withLenon and Rasberry and frosted with Fresh Lemon Cream"
+title: "Step-by-Step Guide to Make Homemade Vanilla Layer Cake filled withLenon and Rasberry and frosted with Fresh Lemon Cream"
+slug: 274-step-by-step-guide-to-make-homemade-vanilla-layer-cake-filled-withlenon-and-rasberry-and-frosted-with-fresh-lemon-cream
+date: 2020-09-09T09:21:53.305Z
+image: https://img-global.cpcdn.com/recipes/3a6e64d9356edae9/751x532cq70/vanilla-layer-cake-filled-withlenon-and-rasberry-and-frosted-with-fresh-lemon-cream-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/3a6e64d9356edae9/751x532cq70/vanilla-layer-cake-filled-withlenon-and-rasberry-and-frosted-with-fresh-lemon-cream-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/3a6e64d9356edae9/751x532cq70/vanilla-layer-cake-filled-withlenon-and-rasberry-and-frosted-with-fresh-lemon-cream-recipe-main-photo.jpg
+author: Brett Gregory
+ratingvalue: 4.5
+reviewcount: 20444
+recipeingredient:
+- "1  recipe if my vanilla butter cake baked in 3  8 inch cake pans and cooled"
+- " For Lemon Curd"
+- " 12 cup fresh lemon juve"
+- "1/2 cup granulated sugar"
+- "2 teaspoon lemon zest"
+- "6 tablespoons butter cut into small pieces"
+- "1 (2 teaspoon) salt"
+- " For Rasberry Spread"
+- "4 tablespoons Rasberry jam at room temperature"
+- " For Lemon Cream Frosting"
+- "2 cups heavy whipping crem"
+- "8 ounces marscapone cheese at room temperature"
+- "2 tablespoons fresh lemon jiice"
+- "1 teaspoon fresh lemon zest"
+- "1 cup confectioners sugar"
+- "1 teaspoon vanilla extractGarnish"
+- "as needed Fresh Rasberries"
+- " White chocolate shavings and fresh rasberries for the garnish"
+recipeinstructions:
+- "Make Lemin Curd"
+- "Combine all ingredients in a saucepan and cook over low heat until thickened, 6 to 10 minute"
+- "Transfer to a bowl, cover with plastic wrap and refrigerate until cold"
+- "Make Lemon Cream Frosting"
+- "Beat cream until it starts to rhicken"
+- "Add remaing ingredients and beat until fluffy and creamy"
+- "Assemble Cake"
+- "Place one layer in serving plate"
+- "Spread with 2 tablespoons Rasberry jam"
+- "Carefully spread 1/2 of the lemon curd on jam"
+- "Add second cake layer, bottom up, add 2 tablespoon Rasberry jam and lemon cur"
+- "Add third layer, bottom up. For easier frosting refrigerate until filling setts"
+- "Frost entire cake with Lemin Cream"
+- "Garnish with Rasberry sand white chocolate refrigerate 2 to 4 hours before slicing"
+- ""
+- ""
+- ""
+categories:
+- Recipe
+tags:
+- vanilla
+- layer
+- cake
+
+katakunci: vanilla layer cake 
+nutrition: 265 calories
+recipecuisine: American
+preptime: "PT32M"
+cooktime: "PT32M"
+recipeyield: "4"
+recipecategory: Dinner
+
+---
+
+
+![Vanilla Layer Cake filled withLenon and Rasberry and frosted with Fresh Lemon Cream](https://img-global.cpcdn.com/recipes/3a6e64d9356edae9/751x532cq70/vanilla-layer-cake-filled-withlenon-and-rasberry-and-frosted-with-fresh-lemon-cream-recipe-main-photo.jpg)
+
+Hello everybody, it's me, Dave, welcome to our recipe site. Today, I will show you a way to make a distinctive dish, vanilla layer cake filled withlenon and rasberry and frosted with fresh lemon cream. One of my favorites food recipes. This time, I will make it a bit unique. This will be really delicious.
+
+Vanilla Layer Cake filled withLenon and Rasberry and frosted with Fresh Lemon Cream is one of the most well liked of recent trending meals in the world. It's easy, it's fast, it tastes delicious. It's appreciated by millions every day. They're fine and they look fantastic. Vanilla Layer Cake filled withLenon and Rasberry and frosted with Fresh Lemon Cream is something that I've loved my whole life.
+
+This Lemon Raspberry Layer Cake has moist, light layers of lemon cake, lemon curd filling and a raspberry frosting. Between the layers of cake is a lovely lemon curd and raspberry buttercream. Sweet and tart all in two beautiful layers. If topping with lemon zest, do so right.
+
+
+To get started with this particular recipe, we have to first prepare a few ingredients. You can have vanilla layer cake filled withlenon and rasberry and frosted with fresh lemon cream using 18 ingredients and 17 steps. Here is how you can achieve it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Vanilla Layer Cake filled withLenon and Rasberry and frosted with Fresh Lemon Cream:
+
+1. Get 1 . recipe if my vanilla butter cake, baked in 3 - 8 inch cake pans and cooled
+1. Take  For Lemon Curd
+1. Make ready  ’1/2 cup fresh lemon juve
+1. Prepare 1/2 cup granulated sugar
+1. Take 2 teaspoon lemon zest
+1. Make ready 6 tablespoons butter, cut into small pieces
+1. Make ready 1 (2 teaspoon) salt
+1. Prepare  For Rasberry Spread
+1. Get 4 tablespoons Rasberry jam, at room temperature
+1. Make ready  For Lemon Cream Frosting
+1. Get 2 cups heavy whipping crem
+1. Take 8 ounces marscapone cheese, at room temperature
+1. Prepare 2 tablespoons fresh lemon jiice
+1. Take 1 teaspoon fresh lemon zest
+1. Get 1 cup confectioners sugar
+1. Prepare 1 teaspoon vanilla extract’Garnish
+1. Get as needed Fresh Rasberries
+1. Make ready  White chocolate shavings and fresh rasberries for the garnish
+
+
+White chocolate cake layers are filled with fresh raspberries and lemon curd and frosted in a tart, lemon butter cream! A vanilla custard cake filling, pastry cream cake filling also know as Crème pâtissière cake filling can be a treat between layers of cake, trifles and pies. · This classic red velvet layer cake recipe is moist, tender, and delicious! I can not stand fondant I&#39;ve tried it a couple times and its not my cup of tea. Always used buttercream and done flowers or piped designes on the cakes so much easier. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Vanilla Layer Cake filled withLenon and Rasberry and frosted with Fresh Lemon Cream:
+
+1. Make Lemin Curd
+1. Combine all ingredients in a saucepan and cook over low heat until thickened, 6 to 10 minute
+1. Transfer to a bowl, cover with plastic wrap and refrigerate until cold
+1. Make Lemon Cream Frosting
+1. Beat cream until it starts to rhicken
+1. Add remaing ingredients and beat until fluffy and creamy
+1. Assemble Cake
+1. Place one layer in serving plate
+1. Spread with 2 tablespoons Rasberry jam
+1. Carefully spread 1/2 of the lemon curd on jam
+1. Add second cake layer, bottom up, add 2 tablespoon Rasberry jam and lemon cur
+1. Add third layer, bottom up. For easier frosting refrigerate until filling setts
+1. Frost entire cake with Lemin Cream
+1. Garnish with Rasberry sand white chocolate refrigerate 2 to 4 hours before slicing
+1. 
+1. 
+1. 
+
+
+I can not stand fondant I&#39;ve tried it a couple times and its not my cup of tea. Always used buttercream and done flowers or piped designes on the cakes so much easier. Topped with lemon cream cheese frosting, lemon slices, lemon zest, and fresh raspberries, they&#39;re the perfect Summer More specifically, these luscious lemon and raspberry cupcakes. They&#39;re sweet, tangy, and bursting with juicy berries in every bite. This lemon cake is made with lemon zest processed with sugar and lemon juice, for a deliciously refreshing and summer-worthy dessert! 
+
+So that's going to wrap it up for this exceptional food vanilla layer cake filled withlenon and rasberry and frosted with fresh lemon cream recipe. Thank you very much for reading. I am confident that you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
